@@ -1,4 +1,4 @@
-This user is severely inexperienced but promises to give his best shot at whatever you throw at them
+pls run
 
 <!---
 scuraball/scuraball is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
